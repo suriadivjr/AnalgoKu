@@ -1,1 +1,1 @@
-# AnalgoKu
+# AnalgoKu Semoga Dapet A - AMIN
